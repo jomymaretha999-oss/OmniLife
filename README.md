@@ -1,1 +1,1 @@
-# OmniLife
+# OmniLifeCreate a professional skincare poster on black matte with blue-white accents, realistic product images: Plum Green Tea Face Wash (₹150-200), POND’S Super Light Gel Moisturiser (₹75-200), VLCC Aqua Light Sunscreen Gel SPF 50 (₹160-260)।
